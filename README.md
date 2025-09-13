@@ -1,3 +1,2 @@
-w i p . . .
+![greetings from draag](https://github.com/user-attachments/assets/1f5c9ff9-ae89-4f4e-b666-c631fd9491e9)
 
-![tumblr_1dc2bd07c98da403b6bad78cb3e77aef_c90804fd_100](https://github.com/user-attachments/assets/67354ee6-708e-4b35-b44f-00cea8928442)
