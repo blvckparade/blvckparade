@@ -1,2 +1,1 @@
-![greetings from draag](https://github.com/user-attachments/assets/1f5c9ff9-ae89-4f4e-b666-c631fd9491e9)
-
+hi im kyle / donnie i like sp and mcr and and idk anyone can int idgaf ( dsmp fandom iwec )
